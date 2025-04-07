@@ -9,7 +9,7 @@
 <p>Free eSIM trials are a great opportunity for users to enjoy the many benefits of eSIM technology with no financial obligations.</p>
 <p>Here are some compelling reasons to take advantage of such trials:</p>
 <p>1. Discovering Before Dedication<br />Free trials before locking into a contract let you experience the service quality, coverage, and speed of a certain carrier.</p>
-<p>2. Freedom for Nomads<br />To the frequent traveler, a free eSIM trial gives a good opportunity to subscribe to an international plan, ensuring your connectivity<br />needs are met as you globe-trot across&nbsp;<a href="https://esimfree.org/esim-worldwide.html">many countries</a>.</p>
+<p>2. Freedom for Nomads<br />To the frequent traveler, a free eSIM trial gives a good opportunity to subscribe to an international plan, ensuring your connectivity<br />needs are met as you globe-trot across&nbsp;<a href="https://esimfree.org/">Free eSIM Trial</a>.</p>
 <p>3. Effortless Switching<br />Free trials give way to easy switching between carriers, and can lock in a provider that best suits your needs without penalty.</p>
 <figure id="attachment_24" class="wp-caption alignnone" aria-describedby="caption-attachment-24"><img class="wp-image-24 size-full" src="https://esimfree.org/blog/wp-content/uploads/2024/11/esim2.jpg" sizes="(max-width: 768px) 100vw, 768px" srcset="https://esimfree.org/blog/wp-content/uploads/2024/11/esim2.jpg 768w, https://esimfree.org/blog/wp-content/uploads/2024/11/esim2-300x225.jpg 300w" alt="Free eSIM Trials Get Started" width="768" height="576" />
 <figcaption id="caption-attachment-24" class="wp-caption-text">Free eSIM Trials Get Started</figcaption>
